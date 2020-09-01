@@ -1,7 +1,0 @@
-# Chapter 1 - Structure
-
-I was homeschooled.  I feel that's one of the most famous disclaimers in the world.  In uttering that strange phrase, you could be making an excuse - or just bragging.  In this case, I am offering an excuse.  I have many of the marks of a homeschooler, and one of them is a guilt about lack of structure.  I was not a great fan of writing as a child, but we had these rote forms for every kind of essay.  They were called PET sheets, and I don't remember the significance of the acroynm, beyond P = Persuasive.  As in, I was never *persuaded* about the effectivenss of before mentioned sheets.  I do remember it was important to have an outline, but I have no such thing in mind as I sit down to this endeavor.
-
-Instead of structure, I propose you read along with me as I exhaust every subject of personal interest, and then perhaps you will have been slightly entertained or enlightened at the end.  As I start, I am also reminded that you must "know your audience" when you begin to communicate a message.  Somewhat unervingly, I don't know who I want to read this yet.  Stay tuned.
-
-I think I had a somewhat illuminating experience last night.  I watched this fascinating show called "Love on the Spectrum".  The basic premise of the show was following a group of wonderfully made young adults that happened to have some challenges with social skills due to their diagnosis of autism or Aspbergers.  I do not claim to be an expert, but
